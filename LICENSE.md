@@ -1,4 +1,4 @@
-
+Download Free king legacy no-ban Scripts for king legacy and experience the ultimate in gameplay enhancement with teleport and auto-upgrade. Designed for gamers who demand the
 
 
 
